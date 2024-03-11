@@ -1,0 +1,2 @@
+# 1Gas.org
+TRUSTWALLET
